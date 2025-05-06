@@ -1,0 +1,1 @@
+# patronesdediseno-decimas
